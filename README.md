@@ -1,1 +1,1 @@
-# rizki.-f.github.com
+# rizki-f.github.com
